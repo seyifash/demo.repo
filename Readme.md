@@ -1,3 +1,3 @@
-#revolutionary
+# revolutionary
 
-God did it.
+God did it!
